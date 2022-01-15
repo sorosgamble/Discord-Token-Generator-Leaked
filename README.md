@@ -1,10 +1,9 @@
 # Discord-Token-Generator-Leaked
 - leaking paid token generator that was a shit lmao for 100$
-# 200iq Token Generator
--he selling it for 100$ wth here the code enjoy don't forget To make Tokens.txt and Proxies.txt
+- he selling it for 100$ wth here the code enjoy don't forget To make Tokens.txt and Proxies.txt
 
 
-# My Token Gen For Sell!
+# ( Storm ) My Token Gen For Sell!
 
 - you can buy my token gen now! full verifiy + captcha bypass 
 - Link Video: https://www.youtube.com/watch?v=yeqvH5F2b2o
